@@ -4,7 +4,7 @@
 
 
  
- ## ___I am a software QA Automation Engineer___ ![image](https://user-images.githubusercontent.com/126094114/225113559-ac0d132f-97bc-4611-af86-07ccdb298fd9.png)
+ ## ___Software QA Automation Engineer___ ![image](https://user-images.githubusercontent.com/126094114/225113559-ac0d132f-97bc-4611-af86-07ccdb298fd9.png)
 
 - - -
                                                       >  WORK HARD, PLAY HARD  🖥️ 💻  💃 👯‍♀️ 
